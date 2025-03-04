@@ -1,2 +1,2 @@
-# skmpplacement-kit
-all placement guide available
+# SKMP PLACEMENT GUIDE
+ALL TOP MNC GUIDE AVILABLE
